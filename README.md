@@ -1,0 +1,2 @@
+# Norman
+Laptob mining
